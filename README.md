@@ -1,0 +1,1 @@
+# valutasnap-privacy
